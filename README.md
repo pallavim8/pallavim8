@@ -1,4 +1,4 @@
-## Hi there 👋
+## About Me 😁
 
 I am Pallavi Mamillapalli, a second-year CS student at the University of Virginia.
 
